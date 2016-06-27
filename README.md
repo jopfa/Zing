@@ -1,3 +1,0 @@
-# Zing
-test
-gdkfmgdkfgkdhkd
